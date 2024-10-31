@@ -1,0 +1,1 @@
+# this is the revision of what i learned in the first 2 eps
